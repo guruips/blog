@@ -1,2 +1,0 @@
-# blog
-Catatan Guru IPS
